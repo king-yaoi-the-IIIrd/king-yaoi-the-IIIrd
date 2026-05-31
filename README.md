@@ -1,16 +1,16 @@
-## Hi there 👋
-
-<!--
-**king-yaoi-the-IIIrd/king-yaoi-the-IIIrd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![image](https://64.media.tumblr.com/046c3cdd7f6bd76b11a0124ab58d3525/fb91479d3e53c266-30/s250x400/b9f191c52e139df0d117c34de9b5a4177b9d8a42.gif)
+![image](https://64.media.tumblr.com/bb9e98b4f20e08429701d971b0263b4c/d31251b9b919b413-fa/s250x400/5a4d8abc285ae04e7cf12c2b6aac5f63ff8b0a84.gif)
+![image](https://64.media.tumblr.com/2ea922318052decf6870ad152ac546d0/d31251b9b919b413-68/s250x400/fa857c7fe83e867a2136d4c686fa211df391832d.gif)
+![image](https://64.media.tumblr.com/427814a26db7541b10d049fc3b5a37cb/d31251b9b919b413-8a/s250x400/f89cc1ea01b31bfaff6ead2ad7853af31ba7021c.gif)
+![image](https://64.media.tumblr.com/369b995ba23a384b1b478ae43270d2cf/11f9555aedb24f93-a5/s400x600/b8d01f88154e05b9d8254458763534c1740f0508.gif)
+![image](https://64.media.tumblr.com/a4ce38efb935269829cba7b9ffc631a9/d31251b9b919b413-c2/s100x200/d50e91d227224b220bede8aed05ac6e1a7e1bd6f.pnj)
+![image](https://64.media.tumblr.com/5b6a0ba05ddcc60fe5c3b405c9798690/99b03e9f0218f144-f2/s250x400/f69663f5d0c598a3c979a78787a48d18e9ffafe8.gif)
+![image](https://64.media.tumblr.com/cfb9de624d30aa0c84136a3e44e04564/99b03e9f0218f144-3e/s250x400/cbb525db7842f63e5f894f450fcd8d60784bb351.gif)
+![image](https://64.media.tumblr.com/8799dd967b05d6d25073496ada2dcee6/7fd8de99c27e763a-fc/s100x200/a7bb7effcc93fe312a39d4878981617c455f008f.gif)
+![image](https://64.media.tumblr.com/101358eefd392bba5b7de6319c4bda7f/da1b35bc5870615c-0e/s100x200/c17a50008394e0a3d5a4150ca30242ac7c089054.gif)
+![image](https://64.media.tumblr.com/0395f9e4a6a3c69325ce81e5fcf6c347/d31251b9b919b413-64/s540x810/7cb69d788b314b836934033b19e7cd9026e2fd96.gif)
+![image](https://64.media.tumblr.com/183896442e27c98608c9ece3c9fe6b54/d31251b9b919b413-bc/s540x810/b4a67da0f3cd37479399098ca1f6f86941c8202c.gif)
+![image](https://64.media.tumblr.com/5af0d7bc8d6088c4c3e0798f0ac491fb/d31251b9b919b413-8a/s540x810/ea5277a512ea7fca2112505d4ea6b609e4400e2e.gif)
+![image](https://64.media.tumblr.com/b64914690fe05813829a6addb1825dbf/d31251b9b919b413-4b/s540x810/39eba907c0ff5946726caa4b143d67e283a99b9f.gif)
+![image](https://64.media.tumblr.com/5c2fc03ee4e1b5c0b711bc7547380420/d31251b9b919b413-9a/s1280x1920/435749b168f23c62c77b731860bff8f6a71f4429.pnj)
+![image](https://64.media.tumblr.com/5c6e70f4e6b77df1e0e59fec400c9b9c/d31251b9b919b413-76/s1280x1920/26e0daf9bb446585ce10608d9848a09b03c83361.pnj)
